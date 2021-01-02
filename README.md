@@ -1,2 +1,2 @@
-## Welcome to The Vitrol
+## Welcome to The Vitriol
 ### We will be here soon!
